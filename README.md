@@ -1,2 +1,1 @@
-
-![resume](https://user-images.githubusercontent.com/41390965/51699385-a1695800-2032-11e9-85ed-c80c5eb4a993.jpg)
+![oneinall](https://user-images.githubusercontent.com/41390965/51785734-07fc8c00-2181-11e9-85e2-a960fc88bb9b.jpg)
